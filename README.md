@@ -6,6 +6,6 @@ ME CHAMO:LUIZFELIPE
 -UTILIZO O ESPAÇO PARA MINHA ORGANIZAÇÃO E COMPARTILHAMENTO DOS MEUS PROJETOS🎭🎇
 
 ###VOCÊ PODE ENTRAR EM CONTATO COMIGO
-           👇👇👇
+           👉»»
 luizfelipeleitedomingues9@gmail.com
 
